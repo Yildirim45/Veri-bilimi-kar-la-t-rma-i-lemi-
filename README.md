@@ -1,0 +1,1 @@
+# Veri-bilimi-kar-la-t-rma-i-lemi-
